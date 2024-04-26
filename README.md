@@ -13,4 +13,4 @@ As entregas devem ser feitas através do Teams e do Github. Lembre sempre de obe
 As permissões são dadas pelos moderadores da organização ou pelo criador. Em caso de problema com permissão, enviar mensagem para os moderadores pelo Teams ou Whatsapp.
 
 
-# **_Obrigado pela atenção!_** 😊
+# **_Obrigado pela atenção!_** 😊😊😊
